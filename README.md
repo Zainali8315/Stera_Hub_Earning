@@ -1,1 +1,1 @@
-# Stera_Hub_Earning
+# Stera Hub Earnings
